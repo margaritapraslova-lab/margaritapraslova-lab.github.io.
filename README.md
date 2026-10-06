@@ -1,1 +1,1 @@
-# margaritapraslova-lab.github.io.
+# margaritapraslova-lab.github.io
